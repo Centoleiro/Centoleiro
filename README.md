@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Centoleiro.
-- 👀 I’m interested in History and so.
-- 🌱 I’m currently learning Humanities in UPF Barcelona.
+- 👀 I’m interested in History, materialist phiosophy and geographical planification
+- 🌱 I’m currently learning Humanities in UPF Barcelona
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me: berrosmiguel3@gmail.com
+- 📫 How to reach me: just find me
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ...
 
